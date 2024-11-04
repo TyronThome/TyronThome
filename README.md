@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TyronThome
-- 👀 I’m interested in growth and development.. Taking in the beauty of everyday that surrounds us.
+- 👀 I’m passionate about growth and development, in every facet of life.
 - 🌱 I’m currently learning the most up-to-date technologies, one at a time.
 - 💞️ I’m looking to collaborate on exhilarating and challenging projects.  
 - 📫 How to reach me ... email - tyronthome@gmail.com
